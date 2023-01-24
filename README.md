@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nibal21
 - 👀 I’m interested in games, series and anime
-- 🌱 I’m currently learnin BSc in CSE at American International University Bangladesh 
+- 🌱 I’m currently learning BSc in CSE at American International University Bangladesh 
 - 💞️ I’m looking to collaborate on group study,thesis and anything regarding learning
 - 📫 How to reach me tasnimalamnibal@gmail.com
 
